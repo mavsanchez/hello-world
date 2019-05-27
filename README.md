@@ -95,4 +95,4 @@ And men like me come around
 Oh, my daddy said shoot
 Oh, my daddy said shoot
 
-(Good job Bey, hahaha)
+(Good job Bey, hahaha)!
